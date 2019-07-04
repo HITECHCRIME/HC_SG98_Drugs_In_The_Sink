@@ -58,7 +58,7 @@ Good Liquors to cook
 Rebecca Speaker Brooklyn Nets record
 corrected freak America
 demanded broken legs and crack and drawers                  /// x x x x x x drugs
-in the sink of Susan Wintergreen than welcome               /// in the sin of susan wintergreen that welcome
+in the sink of Susan Wintergreen than welcome               /// in the sink of susan wintergreen that welcome
 present cutting den of Thieve                               /// present cutting den of thieves
 
 get 20 king
