@@ -16,14 +16,14 @@ Song has lyrics originating from a test. I used a voice recognition software to 
 ## Lyrics
 
 ```
-Getting the Bose light Wicca
-kind of them goes indeed
-Getting them both like vicar
-kind of ghost indeed for them thicker
-like in trouble and make Invicta
+Getting the Bose light Wicca                      /// -getting Listen to the bass bose light wicca
+kind of them goes indeed                          /// kind of them goes indeed
+Getting them both like vicar                      /// lies for them both like vicar
+kind of ghost indeed for them thicker             /// kind of ghost indeed for them thicker
+like in trouble and make Invicta                  /// sprawl in trouble and make invicta
 
-Grab Lakers pick up grab like a speaker
-broken legs Ricca a corrected freak America
+Grab Lakers pick up grab like a speaker           ///
+broken legs Ricca a corrected freak America       ///
 Demented broken legs and Craig as resin
 Synca foot in Wintergreen 10324 Rekha Gandhi
 as invoking resin coating de-nofollow king
