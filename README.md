@@ -6,12 +6,12 @@
 
 ## Project Data
 
-Description.
 
+Song has lyrics originating from a test. I used a voice recognition software to "translate" my incoherent vocals and ryhtmic sounds into an algorithmic wordflow. Interesting tidbit is that I used to prototype just using sounds in the beginning (second ascension) as I had a terrible skill at freestyling, which comes from the nature of my thought processes, not trained for this type of activity.
 
 **Title:** x / **Featuring:** x
 
-**Production:** x / **Lyrics:** x
+**Production:** [FREE] COMETHAZINE x JADEN SMITH Type Beat  Blood Rose  KÜBE PROD / **Lyrics:** x
 
 ## Lyrics
 
@@ -21,45 +21,45 @@ kind of them goes indeed
 Getting them both like vicar
 kind of ghost indeed for them thicker
 like in trouble and make Invicta
- 
+
 Grab Lakers pick up grab like a speaker
 broken legs Ricca a corrected freak America
 Demented broken legs and Craig as resin
 Synca foot in Wintergreen 10324 Rekha Gandhi
 as invoking resin coating de-nofollow king
- 
+
 Getting the bow slide vicar
 kind of them goes and
 they're getting them both
 like the good kind of gross
 and did for them take a like
 in trouble and legs and Victor
- 
+
 Good Lakers pick up grub like a speaker
 broken legs Rick a corrected freak America
 demented broken legs and crackers resin
 sink of food in Wintergreen Rekha Gandhi
 s invoking resin coating Dino follow King
- 
+
 Are you going to pick up
 at the Grange in today, that's f******
 the directors of hermeticism
 for Garner that has Permethrin
 cancel the wrecking get 20 my King
- 
-get 20 King
- 
+
+get 20 my King
+
 Are you going to pick up the grass
 day for the facts about
 the directors of hermeticism for Garner
 that has Permethrin cancel the wrecking get 20 gang
- 
+
 Good Liquors to cook
 Rebecca Speaker Brooklyn Nets record
 corrected freak America
-demanded broken legs and crack and drawers
-in the sink of Susan Wintergreen than welcome
-present cutting den of Thieve
+demanded broken legs and crack and drawers                  /// x x x x x x drugs
+in the sink of Susan Wintergreen than welcome               /// in the sin of susan wintergreen that welcome
+present cutting den of Thieve                               /// present cutting den of thieves
 
 get 20 king
 den of thieves
